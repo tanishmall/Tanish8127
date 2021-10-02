@@ -13,7 +13,7 @@
 
 - 📫 How to reach me: **bro you're already here ;)**
 
-- ⚡ Fun fact **you're already in my GENJUTSU ;) *mangekyo sharingan***
+- ⚡ Fun fact **you're already under my GENJUTSU ;) *mangekyo sharingan***
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
